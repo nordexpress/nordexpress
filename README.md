@@ -1,6 +1,7 @@
-hello, i am aes :) i might come off ad ignorant/rude but thats NOT my intention.
+hello, i am aes :) i might come off and ignorant/rude but thats NOT my intention.
 
-im really shy and awkward but i really like talking to people!! especially if we share interests.
+im really shy and awkward but i really like talking to people!! especially if we share interests,
+so please talk to me!
 
 c + h is okay, especially if im sitting alone :) please w2i as im mostly offtab
 
