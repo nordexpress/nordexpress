@@ -2,6 +2,8 @@ hello, i am aes :) i might come off and ignorant/rude but thats NOT my intention
 
 i have the worst wifi EVER im so sorry if i randomly disappear if u speak to me
 
+im making skins most of the tiome so if i dont answer thats why
+
 im really shy and awkward but i really like talking to people!! especially if we share interests,
 so please talk to me!
 
