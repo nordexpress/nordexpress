@@ -1,4 +1,4 @@
-hello, i am aes :) i might come off and ignorant/rude but thats NOT my intention.
+hello, i am emil :) i might come off and ignorant/rude but thats NOT my intention.
 
 i have the worst wifi EVER im so sorry if i randomly disappear if u speak to me
 
