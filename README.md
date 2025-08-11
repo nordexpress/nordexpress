@@ -4,7 +4,7 @@
 
  </h4>
 
-<p align="center"> emil  ◟ shu ꒱ mostly offtab,,,
+<p align="center"> emil  ◟ he/him ꒱ mostly offtab,,,
 
 <h4 align="center">
   
