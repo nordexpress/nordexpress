@@ -1,14 +1,15 @@
-hello, i am emil :) i might come off and ignorant/rude but thats NOT my intention.
+<h4 align="center"
+  
+![](https://komarev.com/ghpvc/?username=nordexpress&color=1E201E&label=𓂃۶ৎ+&base=1557)
 
-i have the worst wifi EVER im so sorry if i randomly disappear if u speak to me
+ </h4>
 
-im making skins most of the time so if i dont answer to interactions thats why
+<p align="center"> emil  ◟ shu ꒱ mostly offtab,,,
 
-im really shy and awkward but i really like talking to people!! especially if we share interests,
-so please talk to me!
+<h4 align="center">
+  
+  ![](https://64.media.tumblr.com/d533d663f2b818b67c7171ab11b3fd2f/d7ca4b4cfdf7195e-f4/s1280x1920/5d063dc9c5adece0b82fc732da101f398168401c.pnj)
 
-i love vicdrew a lot and im defensive about them haha. can you tell.
-
-![](https://i.pinimg.com/736x/92/a7/2c/92a72ce1a125dd7457822f1a0cfb8e9a.jpg)
-
-check my links for more info and SIGN MY ATA!!
+  
+<p align="center"> no dniˎ check sp and rentry for info 
+ 
