@@ -12,4 +12,5 @@
 
   
 <p align="center"> no dniˎ check sp and rentry for info. ata above ^^
- 
+
+pls dont hesitate to talk.. im nice and i love making friends oki?
