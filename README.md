@@ -4,7 +4,7 @@
 
  </h4>
 
-<p align="center"> vic  ◟ he / she ꒱ mostly offtab,,,
+<p align="center"> andy  ◟ he / she ꒱ mostly offtab,,,
 
 <h4 align="center">
   
